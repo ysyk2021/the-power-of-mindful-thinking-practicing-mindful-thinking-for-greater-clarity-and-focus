@@ -1,4 +1,4 @@
-Chapter 7: Mindful Thinking and Well-being: Benefits of Mindful Thinking for Mental and Physical Well-being
+Benefits of Mindful Thinking for Mental and Physical Well-being
 ===========================================================================================================
 
 The Connection between Mindful Thinking and Well-being

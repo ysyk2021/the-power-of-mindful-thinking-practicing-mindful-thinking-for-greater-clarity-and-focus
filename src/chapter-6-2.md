@@ -1,4 +1,4 @@
-Chapter 5: Mindful Thinking in the Workplace: Techniques for Incorporating Mindful Thinking into Work Tasks
+Techniques for Incorporating Mindful Thinking into Work Tasks
 ===========================================================================================================
 
 The Benefits of Incorporating Mindful Thinking into Work Tasks

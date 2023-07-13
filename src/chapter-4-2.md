@@ -1,4 +1,4 @@
-Chapter 3: Mindful Thinking and Communication: Cultivating Empathy and Understanding with Mindful Thinking
+Cultivating Empathy and Understanding with Mindful Thinking
 ==========================================================================================================
 
 The Connection between Mindful Thinking and Communication

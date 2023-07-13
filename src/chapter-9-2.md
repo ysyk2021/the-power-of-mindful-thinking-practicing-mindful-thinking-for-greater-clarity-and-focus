@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Final Thoughts and Recommendations for Continuing the Journey of Mindful Thinking
+Final Thoughts and Recommendations for Continuing the Journey of Mindful Thinking
 ========================================================================================================
 
 Final Thoughts on Mindful Thinking

@@ -1,4 +1,4 @@
-Chapter 3: Mindful Thinking and Communication: Mindful Thinking in Conflict Resolution
+Mindful Thinking in Conflict Resolution
 ======================================================================================
 
 The Importance of Mindful Thinking in Communication

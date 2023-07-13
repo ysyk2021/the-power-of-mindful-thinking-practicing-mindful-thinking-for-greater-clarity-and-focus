@@ -1,4 +1,4 @@
-Chapter 7: Mindful Thinking and Well-being: Building Resilience Through Mindful Thinking
+Building Resilience Through Mindful Thinking
 ========================================================================================
 
 The Connection between Mindful Thinking and Well-being

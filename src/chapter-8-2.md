@@ -1,4 +1,4 @@
-Chapter 7: Mindful Thinking and Well-being: Using Mindful Thinking to Manage Stress and Anxiety
+Using Mindful Thinking to Manage Stress and Anxiety
 ===============================================================================================
 
 The Connection between Mindful Thinking and Stress/Anxiety

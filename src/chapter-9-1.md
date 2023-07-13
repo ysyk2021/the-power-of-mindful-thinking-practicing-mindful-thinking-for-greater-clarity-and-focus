@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Reflection on the Power of Mindful Thinking
+Reflection on the Power of Mindful Thinking
 ==================================================================
 
 Throughout this book, we have explored the power of mindful thinking and its numerous benefits for personal and professional development. From increased clarity and focus to improved well-being and resilience, practicing mindful thinking can have a transformative impact on our lives.

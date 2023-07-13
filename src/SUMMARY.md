@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful thinking in personal and professional life](chapter-1-2.md)
 - [Chapter 1: Understanding Mindful Thinking](chapter-2.md)
@@ -32,8 +31,5 @@
   - [Benefits of mindful thinking for mental and physical well-being](chapter-8-1.md)
   - [Using mindful thinking to manage stress and anxiety](chapter-8-2.md)
   - [Building resilience through mindful thinking](chapter-8-3.md)
-- [Chapter 8: Conclusion](chapter-9.md)
-  - [Reflection on the power of mindful thinking](chapter-9-1.md)
-  - [Final thoughts and recommendations for continuing the journey of mindful thinking](chapter-9-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

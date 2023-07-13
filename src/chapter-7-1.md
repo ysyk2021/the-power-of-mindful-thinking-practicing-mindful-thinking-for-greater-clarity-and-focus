@@ -1,4 +1,4 @@
-Chapter 6: Mindful Thinking and Creativity: Cultivating Creativity Through Mindful Thinking
+Cultivating Creativity Through Mindful Thinking
 ===========================================================================================
 
 The Connection between Mindful Thinking and Creativity

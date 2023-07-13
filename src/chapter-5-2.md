@@ -1,4 +1,4 @@
-Chapter 4: Overcoming Barriers to Mindful Thinking: Strategies to Overcome These Barriers
+Strategies to Overcome These Barriers
 =========================================================================================
 
 Overcoming Time Constraints

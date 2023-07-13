@@ -1,4 +1,4 @@
-Chapter 3: Mindful Thinking and Communication: Improving Communication through Mindful Thinking
+Improving Communication through Mindful Thinking
 ===============================================================================================
 
 The Connection between Mindful Thinking and Communication

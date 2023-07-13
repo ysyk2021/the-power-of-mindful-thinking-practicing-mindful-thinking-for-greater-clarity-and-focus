@@ -1,4 +1,4 @@
-Introduction: Overview of the Book
+Overview of the Book
 ==================================
 
 The Power of Mindful Thinking is a book that explores the practice of mindful thinking and its benefits for greater clarity and focus in our daily lives.

@@ -1,4 +1,4 @@
-Chapter 5: Mindful Thinking in the Workplace: Creating a Supportive Environment for Mindful Thinking
+Creating a Supportive Environment for Mindful Thinking
 ====================================================================================================
 
 The Benefits of Mindful Thinking in the Workplace

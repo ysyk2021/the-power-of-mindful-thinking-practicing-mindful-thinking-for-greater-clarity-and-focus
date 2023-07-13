@@ -1,4 +1,4 @@
-Chapter 5: Mindful Thinking in the Workplace: Benefits of Mindful Thinking in the Workplace
+Benefits of Mindful Thinking in the Workplace
 ===========================================================================================
 
 The Benefits of Mindful Thinking in the Workplace

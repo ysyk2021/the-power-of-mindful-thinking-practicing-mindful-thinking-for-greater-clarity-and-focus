@@ -1,4 +1,4 @@
-Chapter 4: Overcoming Barriers to Mindful Thinking: Common Barriers to Practicing Mindful Thinking
+Common Barriers to Practicing Mindful Thinking
 ==================================================================================================
 
 The Benefits of Mindful Thinking
