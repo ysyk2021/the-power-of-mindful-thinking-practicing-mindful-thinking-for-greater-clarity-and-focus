@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 8: Conclusion
-=====================
-
 Reflection on the Power of Mindful Thinking
 -------------------------------------------
 
