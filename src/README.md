@@ -6,5 +6,4 @@ Through a series of engaging and accessible chapters, readers will learn how to 
 
 Whether you are seeking to improve your personal or professional life, The Power of Mindful Thinking provides a comprehensive roadmap for developing greater clarity, focus, and well-being through mindful thinking. With its clear and engaging writing style, this book is a must-read for anyone looking to unlock their full potential and achieve greater success and fulfillment in all areas of life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
