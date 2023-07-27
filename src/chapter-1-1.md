@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book
+Overview of the Book
 ===============================
 
 In this chapter, we will provide an overview of the book and what you can expect to gain from reading it.

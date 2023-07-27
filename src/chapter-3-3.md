@@ -1,4 +1,4 @@
-Chapter 5: Letting Go of Unhelpful Thoughts and Beliefs through Mindful Thinking
+Letting Go of Unhelpful Thoughts and Beliefs through Mindful Thinking
 ================================================================================
 
 In this chapter, we will explore how mindful thinking can help us identify and let go of unhelpful thoughts and beliefs that hinder our clarity and focus. By cultivating awareness and non-judgmental observation, we can free ourselves from the grip of negative thinking patterns and create space for more positive and empowering thoughts.

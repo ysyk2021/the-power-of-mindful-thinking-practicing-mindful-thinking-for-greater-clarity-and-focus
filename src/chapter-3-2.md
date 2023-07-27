@@ -1,4 +1,4 @@
-Chapter 7: Benefits of Mindful Thinking for Decision Making
+Benefits of Mindful Thinking for Decision Making
 ===========================================================
 
 In this chapter, we will explore the numerous benefits of applying mindful thinking to decision making. By incorporating mindfulness into our decision-making process, we can enhance our ability to make informed and effective choices that align with our values and goals. Let's dive into the advantages of mindful thinking in decision making.

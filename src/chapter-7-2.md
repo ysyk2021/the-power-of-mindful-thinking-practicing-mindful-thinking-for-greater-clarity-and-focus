@@ -1,4 +1,4 @@
-Chapter 5: Using Mindful Thinking to Overcome Creative Blocks
+Using Mindful Thinking to Overcome Creative Blocks
 =============================================================
 
 In this chapter, we will explore how the practice of mindful thinking can help us overcome creative blocks and unleash our full creative potential. By cultivating a state of mindfulness, we can navigate through obstacles, tap into our innate creativity, and find new pathways for inspiration.

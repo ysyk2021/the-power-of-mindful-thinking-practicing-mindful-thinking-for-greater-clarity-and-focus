@@ -1,4 +1,4 @@
-Chapter 9: Using Mindful Thinking to Approach Tasks and Challenges
+Using Mindful Thinking to Approach Tasks and Challenges
 ==================================================================
 
 In this chapter, we will explore how mindful thinking can be applied to approach tasks and challenges with greater clarity, focus, and effectiveness. By incorporating mindfulness into our daily activities, we can enhance our productivity, creativity, and problem-solving skills. Let's delve into the ways in which mindful thinking can transform our approach to tasks and challenges.

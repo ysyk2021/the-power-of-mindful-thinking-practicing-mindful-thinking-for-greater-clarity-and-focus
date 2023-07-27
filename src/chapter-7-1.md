@@ -1,4 +1,4 @@
-Chapter 5: Cultivating Creativity Through Mindful Thinking
+Cultivating Creativity Through Mindful Thinking
 ==========================================================
 
 In this chapter, we will explore the powerful connection between mindful thinking and creativity. By practicing mindfulness, we can tap into our innate creative potential, enhance clarity of thought, and foster a greater sense of focus. Prepare to unlock your imagination and cultivate a mindset that nurtures innovation.

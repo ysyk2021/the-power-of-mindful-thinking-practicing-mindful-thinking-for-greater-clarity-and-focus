@@ -1,4 +1,4 @@
-Chapter 6: Finding Inspiration and Flow Through Mindful Thinking
+Finding Inspiration and Flow Through Mindful Thinking
 ================================================================
 
 In this chapter, we will explore how mindful thinking can lead us to find inspiration and experience the state of flow in our creative pursuits. By cultivating mindfulness, we can tap into our inner creative reservoirs, ignite inspiration, and immerse ourselves fully in the present moment.
