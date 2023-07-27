@@ -43,4 +43,4 @@ Embracing Mindful Practices for Inspiration
 
 In this section, we will discuss specific mindful practices that can inspire and stimulate our creative thinking. From mindfulness meditation to nature walks and artistic pursuits, we will explore techniques that ignite inspiration and help us overcome creative blocks.
 
-By incorporating mindful thinking into our creative journey, we can break free from creative blocks, expand our imaginative potential, and experience greater clarity and focus. In the next chapter, we will explore how mindful thinking can enhance decision-making and problem-solving skills. Get ready to unleash your creative flow!
+By incorporating mindful thinking into our creative journey, we can break free from creative blocks, expand our imaginative potential, and experience greater clarity and focus.

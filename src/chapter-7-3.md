@@ -43,4 +43,4 @@ Cultivating Gratitude and Joy
 
 Gratitude and joy are powerful emotions that can fuel our creativity and inspire innovative ideas. Mindful thinking teaches us to appreciate the present moment and find joy in the process of creation. By cultivating gratitude and joy, we create an inner environment that nurtures inspiration and fosters the flow state. We will explore practices to cultivate gratitude and infuse joy into our creative pursuits.
 
-Through the practice of mindful thinking, we can enter the realm of inspiration and flow, unlocking our creative potential and experiencing moments of profound clarity and focus. In the next chapter, we will explore how mindful thinking can enhance our ability to make decisions effectively and solve problems creatively. Get ready to harness the power of mindfulness in your decision-making process!
+Through the practice of mindful thinking, we can enter the realm of inspiration and flow, unlocking our creative potential and experiencing moments of profound clarity and focus.

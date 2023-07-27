@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful thinking in personal and professional life](chapter-1-2.md)
 - [Chapter 1: Understanding Mindful Thinking](chapter-2.md)
   - [Definition and benefits of mindful thinking](chapter-2-1.md)

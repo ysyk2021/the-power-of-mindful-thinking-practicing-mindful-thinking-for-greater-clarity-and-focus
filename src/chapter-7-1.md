@@ -38,4 +38,4 @@ Embracing the Path of Continuous Growth
 
 Cultivating creativity through mindful thinking is an ongoing journey. By continually nurturing a mindful mindset, we can remain open to new ideas, adapt to change, and embrace continuous growth. We will discuss strategies for incorporating mindfulness into our daily lives to support long-term creative development.
 
-By embracing mindful thinking, we unlock the door to limitless creative possibilities. In the next chapter, we will explore how mindful thinking can enhance problem-solving and decision-making skills. Prepare to harness the power of clarity and focus as we dive deeper into the realm of mindful thinking.
+By embracing mindful thinking, we unlock the door to limitless creative possibilities.
