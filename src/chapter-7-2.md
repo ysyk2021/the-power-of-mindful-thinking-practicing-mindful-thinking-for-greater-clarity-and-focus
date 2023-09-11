@@ -1,5 +1,3 @@
-Using Mindful Thinking to Overcome Creative Blocks
-=============================================================
 
 In the creative process, it is common to encounter blocks or obstacles that hinder our ability to generate new ideas and find innovative solutions. These creative blocks can be frustrating and may lead to a loss of motivation and inspiration. However, by incorporating mindful thinking techniques into our creative practices, we can navigate these obstacles and unlock our creative potential. This chapter explores how mindful thinking can help overcome creative blocks and enhance clarity and focus in the creative process.
 

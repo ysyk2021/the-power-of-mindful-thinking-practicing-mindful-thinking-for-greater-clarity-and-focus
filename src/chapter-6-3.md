@@ -1,10 +1,5 @@
-Creating a Supportive Environment for Mindful Thinking
-===============================================================
 
 In this chapter, we will explore the importance of creating a supportive environment for practicing mindful thinking. A conducive environment plays a crucial role in cultivating mindfulness, as it helps to minimize distractions and foster focus and clarity. We will discuss various strategies and techniques to establish an environment that supports and nurtures mindful thinking, allowing for enhanced clarity and focus in our daily lives.
-
-Introduction
-------------
 
 The power of mindful thinking can be truly harnessed when we have a supportive environment that encourages and sustains our practice. An environment that promotes mindfulness reduces external distractions, provides inspiration, and creates a space where we can cultivate greater presence and awareness. This chapter will guide you through practical ways to create such an environment, both in your physical surroundings and within your daily routines.
 

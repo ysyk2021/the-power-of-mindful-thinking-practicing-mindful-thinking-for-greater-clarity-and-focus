@@ -1,4 +1,3 @@
-# Chapter 1: Understanding Mindful Thinking
 
 ## Definition and Benefits of Mindful Thinking
 

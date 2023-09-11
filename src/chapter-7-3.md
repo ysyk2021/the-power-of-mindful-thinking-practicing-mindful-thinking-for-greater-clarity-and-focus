@@ -1,5 +1,3 @@
-Finding Inspiration and Flow through Mindful Thinking
-================================================================
 
 In this chapter, we will explore how the practice of mindful thinking can help us find inspiration and enter a state of flow, where creativity effortlessly flows through us. By cultivating awareness, embracing the present moment, and tapping into our inner resources, we can unlock our creative potential and experience a deep sense of inspiration and focus.
 

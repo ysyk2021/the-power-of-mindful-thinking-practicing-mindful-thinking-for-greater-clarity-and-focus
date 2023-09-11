@@ -1,5 +1,3 @@
-Techniques and Exercises to Cultivate Mindful Thinking Habits
-======================================================================
 
 In this chapter, we will explore various techniques and exercises that can help individuals cultivate mindful thinking habits. These practices are designed to develop present-moment awareness, enhance clarity, and foster a non-judgmental attitude towards thoughts, emotions, and sensations. By incorporating these techniques into daily life, individuals can gradually cultivate mindful thinking as a natural habit, leading to greater clarity and focus.
 

@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Reflection on the Power of Mindful Thinking
 -------------------------------------------

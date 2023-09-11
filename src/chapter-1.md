@@ -1,5 +1,3 @@
-Introduction
-============
 
 Overview of the Book
 --------------------

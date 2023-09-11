@@ -1,4 +1,3 @@
-# Chapter 6: Mindful Thinking and Creativity
 
 ## Cultivating Creativity Through Mindful Thinking
 

@@ -1,5 +1,3 @@
-Chapter 3: Mindful Thinking and Communication
-=============================================
 
 Improving Communication Through Mindful Thinking
 ------------------------------------------------
@@ -30,5 +28,4 @@ Conclusion
 Effective communication is essential in our personal and professional lives, and mindful thinking can help us improve our communication skills, cultivate empathy and understanding, and approach conflicts with greater clarity and compassion.
 
 By practicing mindfulness and staying present and attentive in our interactions with others, we can build deeper connections and improve our communication skills. Remember to approach conversations with an open and non-judgmental mindset and regulate your own emotions and reactions during conflicts. With mindful thinking, we can become more effective and compassionate communicators.
-
 

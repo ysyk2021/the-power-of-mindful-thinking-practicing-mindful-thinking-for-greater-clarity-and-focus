@@ -1,4 +1,3 @@
-# Chapter 2: Applying Mindful Thinking in Daily Life
 
 ## Using Mindful Thinking to Approach Tasks and Challenges
 

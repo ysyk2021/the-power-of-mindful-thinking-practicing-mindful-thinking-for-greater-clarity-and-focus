@@ -1,5 +1,3 @@
-Building Resilience Through Mindful Thinking
-=======================================================
 
 In this chapter, we will explore how mindful thinking can help us build resilience in the face of adversity, challenges, and setbacks. By cultivating a mindful mindset, we can develop the inner strength and emotional flexibility to bounce back from difficulties and navigate life's ups and downs with greater ease. Let's delve into the ways in which mindful thinking can support the development of resilience.
 

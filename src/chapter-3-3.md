@@ -1,5 +1,3 @@
-Letting Go of Unhelpful Thoughts and Beliefs through Mindful Thinking
-================================================================================
 
 In this chapter, we will explore how the practice of mindful thinking can help us let go of unhelpful thoughts and beliefs that limit our potential and hinder our clarity and focus. By cultivating awareness, non-judgment, and compassionate self-reflection, we can break free from the grip of these thoughts and beliefs, allowing space for new perspectives and empowering beliefs to emerge.
 
